@@ -1,4 +1,4 @@
-From the Anapananusmriti Sutra
+From the Anapananusmriti Sutra translation by Tang Hoi
 
 1. Breathing in and out a long breath, she knows she is breathing in and out a long breath.
 
